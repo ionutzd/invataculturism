@@ -1,2 +1,0 @@
-# invataculturism
-despre culturism
